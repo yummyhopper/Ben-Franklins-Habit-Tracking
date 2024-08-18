@@ -1,6 +1,6 @@
 # How virtuous was I this semester?
 
-![download](https://github.com/user-attachments/assets/e0e78216-f889-4fc9-a23a-0ba203be03fb)
+![R](https://github.com/user-attachments/assets/73dadadf-e920-4821-9f4b-45d4450639ca)
 
 
 ### Introduction
